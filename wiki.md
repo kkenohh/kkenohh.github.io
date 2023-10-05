@@ -21,4 +21,5 @@ Despite the loss, the Jets played great and I think there's lots of hope for the
 
 ### Links
 - [PFF Article](https://www.pff.com/news/nfl-week-4-game-recap-kansas-city-chiefs-23-new-york-jets-20)
-- [Saleh On Final Drive](https://www.nj.com/jets/2023/10/jets-robert-saleh-wants-nfl-explanation-for-calls-on-bizarre-final-drive-vs-chiefs.html)
+- [Saleh's Comments on Final Drive](https://www.nj.com/jets/2023/10/jets-robert-saleh-wants-nfl-explanation-for-calls-on-bizarre-final-drive-vs-chiefs.html)
+- [Highlights](https://www.usatoday.com/story/sports/nfl/2023/10/01/chiefs-jets-taylor-swift-sunday-night-football-live-updates/71016191007/)
